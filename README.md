@@ -36,7 +36,7 @@ A real-world Power BI dashboard comparing ₹31.7M in actual costs vs. ₹10M in
 
 ## 📫 Let’s Connect
 
-- [LinkedIn](https://linkedin.com/in/chatur)  
+- [LinkedIn](www.linkedin.com/in/chaturbhuj-h)  
 - 📧 chaturbhuj7110@gmail.com  
 
 ---
